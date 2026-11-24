@@ -9,7 +9,9 @@
 - **Контакты**:
   - Телефон: +7 922 745 2316
   - Telegram: @nikistayinalight
-  - Почта: visualsencelab@gmail.com
+  - Почта: visualsencelab@gmail.com (в короткое КП не ставим — вместо неё сайт)
+  - МАКС: https://max.ru/u/f9LHodD0cOLPJveexzmU9JxeeBzztxzxpDAf8fe54TqpL1h6N5qFcZWPXHE
+  - Сайт: https://vsl74.ru
 
 ## Позиционирование
 
